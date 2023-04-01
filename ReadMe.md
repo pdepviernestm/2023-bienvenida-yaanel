@@ -13,4 +13,5 @@ Empecé Ingeniería en Sistemas de Información el año pasado. Mis materias fav
 
 Bueno y esta soy yo :)
 ![fotito yo](https://user-images.githubusercontent.com/129529032/229311987-63bbd433-821b-498e-abfc-1d3830e5edde.jpg)
+
 Saludos gente :D
