@@ -17,4 +17,7 @@ Mi legajo es 207.911-2
 Bueno y esta soy yo :)
 ![fotito yo](https://user-images.githubusercontent.com/129529032/229311987-63bbd433-821b-498e-abfc-1d3830e5edde.jpg)
 
+Estos son mis perritos, el de más adelante es Rufus y el de atrás es Raffa
+![perritos ](https://user-images.githubusercontent.com/129529032/229613272-ea839143-6586-436b-9dbe-9200d36774a1.jpeg)
+
 Saludos gente :D
