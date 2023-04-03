@@ -8,6 +8,7 @@ Mi legajo es 207.911-2
 - Trato de saludar y acordarme los nombres de todos porque siento que es un lindo detalle.
 - Me gusta mucho Disney y Pixar. Si fueron presencial la primera clase capaz llegaron a ver mi mochila de Buzz que amo. 
 - Mi película favorita es Toy Story 2🙏🏻.
+  - Mis dos personajes favoritos son Jessie y Buzz
   - Mi escena favorita es cuando Buzz, Rex, el Señor Cara de Papa y Slinky quieren entrar al departamento, donde estaba Woody, por la ventilación que tiene rejas y, para hacerlo, deciden usar la cabeza de Rex :D
 - Mis series favoritas son Friends, The Office y Bojack Horseman -sin orden alguno-.
 - Tengo 2 perritos, Raffa y Rufus, que amo con todo mi ser.
