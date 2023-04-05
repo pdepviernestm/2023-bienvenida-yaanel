@@ -7,6 +7,7 @@ Mi legajo es 207.911-2
 - Soy un poco introvertida al principio de hablar con gente nueva.
 - Trato de saludar y acordarme los nombres de todos porque siento que es un lindo detalle.
 - Me gusta mucho Disney y Pixar. Si fueron presencial la primera clase capaz llegaron a ver mi mochila de Buzz que amo. 
+- Ranking de películas de mejor a peor: Toy Story 2, Toy Story 1, Toy Story 3 y Toy Story 4.
 - Mi película favorita es Toy Story 2🙏🏻.
   - Mis dos personajes favoritos son Jessie y Buzz
   - Mi escena favorita es cuando Buzz, Rex, el Señor Cara de Papa y Slinky quieren entrar al departamento, donde estaba Woody, por la ventilación que tiene rejas y, para hacerlo, deciden usar la cabeza de Rex :D
